@@ -1,0 +1,6 @@
+- Hi, I’m @Avienwolf
+- I’m interested in Linux,Open Source software and learning tech 
+- I'm a newbie to this whole thing and would appreciate help and guidence from the community
+-I’m looking to collaborate on almost anything if I get an oppurtunity to.
+-I,being a newbie can be a decent person to test or maybe I can pitch you some of my own ideas.
+-I can be contacted through Instagram @Avienwolf1738
